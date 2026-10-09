@@ -81,7 +81,7 @@ Bu bir kurt taktigidir.
 
 
 
-Bu bir surec.
+Bu bir surec. Dogal gidisat. 
 
 
 
@@ -92,9 +92,12 @@ Devlet, tam kokunden temizlik yapiyor simdi/artik.
 Anlamadiysaniz, bir daha soyleyim: *tam* kokunden. Yillardir, hatta asirlardir kivrim kivrim kivrilmis/yerlesmis, taa diplere kok salmis sarmalamis pence pence yayilmis asalaklari temizliyor Devlet. Kotu her yerde olur – doganin kanunu bu. Ama kotunun kurumlasmamis olmasi gerekir. Iste o kurumsallasmislari temizliyor Devlet. Taaaa kokunden. Kaziyor.
 
 
+Kotu zamanlar, bir suzgectir. Zayiflerin/kotulerin kendi kendilerini suzup goturdugu/attigi. Akla karanin ayristigi/goruldugu, kimin ne oldugunun ortaya ciktigi, basit firsatci/duskun/..lerin, hafiflikleri olcusunde su yuzune cikip ayristigi. Arkadan/esastan gelecek taptaza guzalliklere yer actigi.  
+
+
 Bu temizligin bir parcasi da egitim sistemi.
 
-Artik yeni, guzel, taptaze insanlar gelecek, hatta geliyor. Dusunmesini bilen. Farkinda olan, olmasini bilen. Bu *cok* onemli. ((“Herkes boyle yapiyor”cular degil – dusunenler, farkindacilar. Olan bitenin ardindakini gormesini bilenler. Neyin nereden geldigini sorgulayabilen. Kisisel tercihin, onurun degerini bilen, sahip cikan.)) Hepsinden onemli. Ve bu FETO ve sairesi, boyle temizlenecek. FETO, FETOculer’i cikarip atmanin degil, yerine ne konacaginin zorlugundan bitmedi henuz, eger hala bitmediyse. Ve de iste tam boyle bitecek. Birseyi yikmak, bir acigin/deligini bulmaya bakar – anliktir ((, ve “basari”si, o sizabildigi bosluk kadar/capindadir.)) Ama birseyi kurmak; tum yapiyi saglama almak, olasi butun delikleri dusunup/bilmek, insa etmektir, ve surec alir. Bir devinimdir. Dengelerin, degisip oturmasi, saglikli/saglam bir yere evrilmesidir. Sindire sindire, sapasaglamdir. Ve uzun vadelidir artik. Oyle kolay kolay yikilmaz. Yikilmayi birak -- o gelen yikimcilari icine alir, ogutur. Hatta o yikicilarin "yikacagi" delikleri kendi acar, onlari icine alir ogutur. Artik boyledir. Bu, esas guctur. 
+Artik yeni, guzel, taptaze insanlar gelecek, hatta geliyor, hatta geldi! Dusunmesini bilen. Farkinda olan, olmasini bilen. Bu *cok* onemli. ((“Herkes boyle yapiyor”cular degil – dusunenler, farkindacilar. Olan bitenin ardindakini gormesini bilenler. Neyin nereden geldigini sorgulayabilen. Kisisel tercihin, onurun degerini bilen, sahip cikan.)) Hepsinden onemli. Ve bu FETO ve sairesi, boyle temizlenecek. FETO, FETOculer’i cikarip atmanin degil, yerine ne konacaginin zorlugundan bitmedi henuz, eger hala bitmediyse. Ve de iste tam boyle bitecek. Birseyi yikmak, bir acigin/deligini bulmaya bakar – anliktir ((, ve “basari”si, o sizabildigi bosluk kadar/capindadir.)) Ama birseyi kurmak; tum yapiyi saglama almak, olasi butun delikleri dusunup/bilmek, insa etmektir, ve surec alir. Bir devinimdir. Dengelerin, degisip oturmasi, saglikli/saglam bir yere evrilmesidir. Sindire sindire, sapasaglamdir. Ve uzun vadelidir artik. Oyle kolay kolay yikilmaz. Yikilmayi birak -- o gelen yikimcilari icine alir, ogutur. Hatta o yikicilarin "yikacagi" delikleri kendi acar, onlari icine alir ogutur. Artik boyledir. Bu, esas guctur. 
 
 Her durumda, her durumun belirleyicisi. 
 
