@@ -27,6 +27,7 @@ Taaa, devletin her yerine, her kademede giren FETO bunlari yaparken Devlet uyuyo
     • hergun ortalama, hic de bilmek istemedigimiz kadar sehit verdigimiz,
     • devlet dairelerinde hicbir isin insanin fitil fitil burnundan getirilmeden halledilmedigi
     • rusvet/soygun/vurgun/hortumlama.. haberlerinin degisen zaman/arac terminolojisinde duyulup durdugu
+    • "memleket niye boyle, niye kimse birsey yapmiyor" diye catir catir catladigimiz 
     • mizahsever insanimizin gulduru/mizah vs programlarinda (belki onlari da Devlet yaptirdi/pompaladi(?)) kendinden gectigi, baska hic desarj araci yokmus gibi
 
 
