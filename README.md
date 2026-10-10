@@ -101,6 +101,8 @@ Türkiye’nin önü çok aydınlık.
 //=============================================
 //=============================================
 
+Savaşlar, top tüfek ve saireyle girerek patlatarak kazanılmaz, durumları dönüştürerek kazanılır. 
+R.JUSTIFY Top tüfek v.s., zulmü nölemek içindir, kazanmak değil. Başka çarenin kalmadığı zamanlar içindir.
 //=============================================
 
 Farkındalığı açık olan insan kötü iş yapamaz.
