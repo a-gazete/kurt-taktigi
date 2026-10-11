@@ -29,18 +29,18 @@ Taaa, devletin her yerine, her kademede giren FETÖ bunları yaparken Devlet uyu
 
 
 <p align="right" style="margin-left: 15%;">
-<span style="color: purple !important; font-weight: bold; font-style: italic;">
+<span style="color: purple !important; font-style: italic;">
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Devlet bir tanedir. Birden fazlaysa o başka bir şeydir artık – ikinci bir devlet olmaz. Ve mutlaktır –  partiler üstüdür. Bir aygıttır. Aygıtın partisi olmaz. Kişiler işletir, ama kişilere bağ(ım)lı değildir, olmamalıdır. Devamlılığı vardır.
 </span>
 </p>
 
 <p align="right" style="margin-left: 15%;">
-<span style="color: purple !important; font-weight: bold; font-style: italic;">
+<span style="color: purple !important; font-style: italic;">
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Devlet diye büyük harfle yazdığımda bu Devlet'i kastediyorum. Esas/iç devlet. Sadece partilerin değil, hükümet ve kurumların, hatta istihbarat teşkilatının da çoook ötesindeki, o sürüp giden.
 </span>
 </p>
 
-Anlık kazanç, kurt taktiğini bozar. Bir şeyi bilip/görüp de bir şey yapmamak, yapmamak gerektiği için yapmamak, hakk-ı bilen için çok zordur. O şey için o an yapılması gerekenlerin en özenli şekilde yapılması, bu beklemenin zorluğunu belli ölçüde giderir, ama yine de zordur. Devlet booooyle beklemiş. Uzuuuun zaman.
+Anlık kazanç, kurt taktiğini bozar. Bir şeyi bilip/görüp de bir şey yapmamak, yapmamak gerektiği için yapmamak, hakk-ı bilen için çok zordur. O şey için o an yapılması gerekenlerin en özenli şekilde yapılması, bu beklemenin zorluğunu belli ölçüde giderir, ama yine de zordur. Devlet bööööyle beklemiş. Uzuuuun zaman.
 
 FETÖ'de yapılan bu değil mi? FETÖ taaa içimize sızarken, Devlet de FETÖ'ye sızmadı mı? Hatta onlara "yol verdi", onlara "katıldı" mı!? Önemli olan, olan bitenin içinde olmak. İpleri elinde tutmak. Dinamiği götürmek, belli noktalarda hakim/belirleyici olmak. İpleri ele geçirmek. Yavaş yavaş belki, ama mutlaka.
 
@@ -76,13 +76,13 @@ Bu bir süreç – anlık birşey değil. Herşey aklın/gönlün dilediği hız
 
 
 <p align="right" style="margin-left: 15%;">
-<span style="color: purple !important; font-weight: bold; font-style: italic;">
+<span style="color: purple !important; font-style: italic;">
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Devlet, bizleriz. Hepimiz – herkes. Devlet dairelerinde çalışanlar, öğrenci eğitenler, insanın/şehrin taa gündelik hayatında olan belediyeler, sokakta yürüyen parkta oturan insanlar, işine gücüne gidenler/gitmeyenler.
 </span>
 </p>
 
 <p align="right" style="margin-left: 15%;">
-<span style="color: purple !important; font-weight: bold; font-style: italic;">
+<span style="color: purple !important; font-style: italic;">
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Devlet'e faydası/katkısı olanlarsa, işini gücünü doğru/dürüst yapanlar. Kendi işini gücünü doğru dürüst yapanlar. İyi niyet asla yetmez – bilgi/liyakat gereklidir. Ve de, örgütsel bütünlük.  Devlet işi hiçbir zaman göründüğü gibi olmaz. Bilmeden kendini ortaya atan, büyük ihtimalle işi bozar. Bildiği işi en iyi şekilde yapandan fazla faydası olan yoktur Devlet'e.
 </span>
 </p>
