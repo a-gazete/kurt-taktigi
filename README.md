@@ -83,7 +83,7 @@ Bu bir süreç – anlık birşey değil. Herşey aklın/gönlün dilediği hız
 
 <p align="right" style="margin-left: 15%;">
 <span style="color: purple !important; font-style: italic;">
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Devlet'e faydası/katkısı olanlarsa, işini gücünü doğru/dürüst yapanlar. Kendi işini gücünü doğru dürüst yapanlar. İyi niyet asla yetmez – bilgi/liyakat gereklidir. Ve de, örgütsel bütünlük.  Devlet işi hiçbir zaman göründüğü gibi olmaz. Bilmeden kendini ortaya atan, büyük ihtimalle işi bozar. Bildiği işi en iyi şekilde yapandan fazla faydası olan yoktur Devlet'e.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Devlet'e faydası/katkısı olanlarsa, işini gücünü doğru/dürüst yapanlar. Kendi işini gücünü doğru dürüst yapanlar. İyi niyet asla yetmez – bilgi/liyakat gereklidir. Ve de, örgütsel bütünlük.  Devlet işi hiçbir zaman göründüğü gibi olmaz. Bilmeden kendini ortaya atan, büyük ihtimalle işi bozar. Devlet'e en faydalı olan, bildiği işi en iyi şekilde yapandandır. 
 </span>
 </p>
 
