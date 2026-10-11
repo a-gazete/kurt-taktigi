@@ -1,3 +1,5 @@
+See teh ODT file -- not this for the recent. 
+
 # Kurt Taktigi
 
 Türklerin kurt taktiği vardır – savaşta, yenilir gibi geri çekilirler. Ama, böyle geri çekilirken yanlara kayarlar. Düşman, “yenilenler” üzerine ilerler. Ama aslında bu şekilde ilerlerken, çevreleri sarılıyordur.
